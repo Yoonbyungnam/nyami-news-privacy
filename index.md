@@ -4,6 +4,8 @@ title: "Privacy Policy — 냐미뉴스"
 
 # Privacy Policy — 냐미뉴스 (Daily News Shorts)
 
+[Terms of Service](./terms.html) · YouTube channel: [@냐미뉴스](https://www.youtube.com/@냐미뉴스) · Blog: [1분뉴스](https://blog.naver.com/skatm2325)
+
 *Last updated: 2026-11-19*
 
 
